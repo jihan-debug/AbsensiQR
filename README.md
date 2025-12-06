@@ -4,7 +4,7 @@ Nama Kelompok: Kelompok 6
 
 Anggota:
 
-jihan amalia az-zahra - 701230301
+Jihan amalia az-zahra - 701230301
 
 Emeliya - 701230104
 
